@@ -2,4 +2,4 @@
 Привет всем! Ниже приведены ссылки для скачивания читов (─‿‿─)
 
 
-Osu! -
+Osu! - https://github.com/DDDaaaNNNiiiKKKzzz/Freedom
