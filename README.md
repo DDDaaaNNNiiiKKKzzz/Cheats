@@ -3,3 +3,7 @@
 
 
 Osu! - https://oxy.name/d/wEKg
+minecraft - ?
+Rust - ?
+CS GO - ?
+Dota 2 - ?
