@@ -2,4 +2,4 @@
 Привет всем! Ниже приведены ссылки для скачивания читов (─‿‿─)
 
 
-Osu! - https://oxy.name/d/wEKg
+Osu! (freedom) - https://oxy.name/d/wEKg
